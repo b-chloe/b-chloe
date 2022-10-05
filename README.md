@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @b-chloe
+- 👋 Hi, I’m Chloe
 - 👀 I’m interested in science, nature, gardening, knitting and sewing, star trek, animals, card games, and trashy reality tv.
 - 🌱 I’m currently learning the basics of programming
 - 💞️ I’m looking to collaborate on just coursework at this time
